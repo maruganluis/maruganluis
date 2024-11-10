@@ -13,4 +13,4 @@ Feel free to reach out if you want to talk about design, UX/UI, or anything in b
 ---
 
 ### 🌐 Connect with Me
-[LinkedIn](www.linkedin.com/in/luis-marugan-benavente)  
+[LinkedIn](https://www.linkedin.com/in/luis-marugan-benavente)  
